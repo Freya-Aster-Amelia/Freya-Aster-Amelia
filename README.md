@@ -1,16 +1,15 @@
-### Hi there 👋
+## Please forgive me for my bad takes
 
-<!--
-**Freya-Aster-Amelia/Freya-Aster-Amelia** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Heya, I'm Freya and most of the time lost in my own thoughts.
+If that's not the case, I like to read about almost anything.
 
-Here are some ideas to get you started:
+Most of the time I try to do everything at once, which fails spectacularly.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Note that I'm not a professional in any fields yet.
+
+I just want to make money and die, thank you.
+
+
+
+Enjoy your stay,
+Freya 💕
